@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**One of my biggest atributes is not beign bad or good at most things, I'm mostly in that grey area in between.**
